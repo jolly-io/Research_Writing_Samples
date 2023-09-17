@@ -1,2 +1,3 @@
 # Research and Writing Samples
-I share samples of my Empirical and Non-empirical research work products
+
+I share samples from both my empirical and non-empirical research projects
