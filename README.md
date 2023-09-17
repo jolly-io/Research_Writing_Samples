@@ -1,2 +1,2 @@
 # Research_Writing_Samples
-I share samples of my research work products
+I share samples of my Empirical and Non-empirical research work products
